@@ -2,7 +2,7 @@
 
 
 video link
-https://bit.ly/3MAkLxR
+# https://bit.ly/3MAkLxR
 
 emojis vido link
-https://bit.ly/3khZuNp
+# https://bit.ly/3khZuNp
